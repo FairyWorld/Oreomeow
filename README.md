@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning **law**
 
-- 📫 How to reach me **https://t.me/joinchat/S-dyZ-MbKYxkOWNl**
+- 📫 How to reach me ****
 
 
 <h3 align="left">Languages and Tools:</h3>
